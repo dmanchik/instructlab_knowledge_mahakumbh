@@ -54,4 +54,14 @@ List of largest gatherings in history
 
 ## External links
 
+## Attendance
+
+The 2025 Maha Kumbh Mela has made preparations for the attendance of up to 40 crores (400 million) visitors. Many tourists and pilgrims come from various countries such as Australia, Brazil, Bulgaria, Canada, Fiji, Finland, France, Germany, Greece, Guyana, Indonesia, Israel, Italy, Japan, Malaysia, Mauritius, Mexico, Mongolia, Nepal, Netherlands, Russia, Singapore, South Africa, Spain, Sri Lanka, Thailand, Trinidad and Tobago, United Arab Emirates, United Kingdom and United States.
+A delegation of 118 diplomats, including the Heads of Mission, their spouses, and diplomats from 77 countries, will visit the Mahakumbh at Prayagraj on 1 February 2025.
+
+## Incidents
+
+On 19 January 2025 a fire caused by an exploding gas cylinder destroyed at least 18 temporary tents at the festival grounds. No injuries were reported.
+On 29 January 2025, a stampede at the festival grounds left at least 30 people dead and 60 others injured.
+
 Official website
